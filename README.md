@@ -1,1 +1,1 @@
-### Subscribe to the Channel -> https://www.youtube.com/@SamAmoah
+### Subscribe to the Channel -> https://www.youtube.com/@samcux
